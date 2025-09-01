@@ -15,6 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-<p align="Center"> **Albert OR Wes**
+<p align="Center"> Albert OR Wes
 <p align="Center">
  ![7929360d923f979e8c22b8e74869dcad](https://github.com/user-attachments/assets/4fc6b877-4edb-4e6c-931b-30366eeb6e88)
