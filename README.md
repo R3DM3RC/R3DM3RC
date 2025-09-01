@@ -41,4 +41,12 @@ Here are some ideas to get you started:
 <p align="Center"> ★ᴍᴏᴜᴛʜᴡᴀꜱʜɪɴɢ ɪꜱ ᴏɴ ᴛʜɪɴ ɪᴄᴇ ʙᴛᴡ :3
 <p align="Center"> !!!!!!! *ᴛʜᴏꜱᴇ ᴡʜᴏ ᴅᴏɴ'ᴛ ᴀᴄᴛɪᴠᴇʟʏ ᴘᴀʀᴛɪᴄɪᴘᴀᴛᴇ ɪɴ ᴛʜᴇ ꜰᴀɴᴅᴏᴍꜱ ᴛᴏxɪᴄɪᴛʏ ᴀʀᴇ ᴏᴋᴀʏ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ᴜɴʟᴇꜱꜱ ɪᴛ'ꜱ ᴀɴ ᴇxᴛʀᴇᴍᴇʟʏ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ ᴍᴇᴅɪᴀ ꜱᴜᴄʜ ᴀꜱ Horrorporn etc. !!!!!!!
 <p align="Center"> ╚══ஓ๑♡๑ஓ══╝
-⠀⠀
+
+𝘾𝙪𝙧𝙧𝙚𝙣𝙩 𝙄𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨
+Marvel, Dead By Daylight, Resident Evil, Five Nights At Freddy's, The Quarry, Doctor Who, Red Dwarf & American Horror Story.
+
+𝙁𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝙎𝙝𝙞𝙥𝙨
+Warloki, Lunar Justice (Frank Castle and Moonknight), 
+
+𝙁𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝘾𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨
+Moonknight, Adam Warlock, AntMan, Hank Pym, SpringTrap, The Mangle, William Afton. 
