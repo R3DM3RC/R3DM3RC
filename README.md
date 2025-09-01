@@ -22,4 +22,7 @@ Warloki, Lunar Justice (Frank Castle and Moonknight), Otto Octavius and Norman O
 𝙁𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝘾𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨:
 Moonknight, Adam Warlock, Ant-Man, Hank Pym, SpringTrap, The Mangle, William Afton. 
 
+</div> <div align="center">
+
+
 ![ezgif-45ae08e09cd02d](https://github.com/user-attachments/assets/7b5e1742-6e72-44aa-a604-0f931efa0375) 
