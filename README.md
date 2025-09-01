@@ -19,13 +19,8 @@ Here are some ideas to get you started:
 <p align="Center"> 
 
  
-<div align="center"> 
- ![873417bc20fcd044cccfdab472dbcc09](https://github.com/user-attachments/assets/e802f0e5-e957-4577-96b1-a25ad7a9b8ca) 
- 
-</div>
-
 <div align="center">
-  <img src="https://64.media.tumblr.com/250797a5372598fb64db83ff1f8721b3/39ef88f5a623735f-5f/s1280x1920/c210a33d9d68d97c4f3be1a6773339ddde31a193.jpg">
+  <img src="https://64.media.tumblr.com/a003f9952ea3cd0e2f2e3be6ef705a53/5dce411690025c9f-6b/s500x750/847a9092e87e1a3d7f91b18fa18abebec3c02539.pnj">
 </div>
  
 <p align="Center"> Rentry > Strawpage > AtaBook > My Friends
