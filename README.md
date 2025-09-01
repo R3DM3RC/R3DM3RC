@@ -17,4 +17,4 @@ Here are some ideas to get you started:
 
 <p align="Center"> Albert OR Wes
 <p align="Center">
- ![7929360d923f979e8c22b8e74869dcad](https://github.com/user-attachments/assets/4fc6b877-4edb-4e6c-931b-30366eeb6e88)
+ ![873417bc20fcd044cccfdab472dbcc09](https://github.com/user-attachments/assets/e802f0e5-e957-4577-96b1-a25ad7a9b8ca)
