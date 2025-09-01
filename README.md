@@ -25,7 +25,7 @@ Here are some ideas to get you started:
 </div>
 
 <div align="center">
-  <img src="https://i.imgur.com/8BgVXcY.png">
+  <img src="https://64.media.tumblr.com/250797a5372598fb64db83ff1f8721b3/39ef88f5a623735f-5f/s1280x1920/c210a33d9d68d97c4f3be1a6773339ddde31a193.jpg">
 </div>
  
 <p align="Center"> Rentry > Strawpage > AtaBook > My Friends
@@ -42,11 +42,11 @@ Here are some ideas to get you started:
 <p align="Center"> !!!!!!! *ᴛʜᴏꜱᴇ ᴡʜᴏ ᴅᴏɴ'ᴛ ᴀᴄᴛɪᴠᴇʟʏ ᴘᴀʀᴛɪᴄɪᴘᴀᴛᴇ ɪɴ ᴛʜᴇ ꜰᴀɴᴅᴏᴍꜱ ᴛᴏxɪᴄɪᴛʏ ᴀʀᴇ ᴏᴋᴀʏ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ᴜɴʟᴇꜱꜱ ɪᴛ'ꜱ ᴀɴ ᴇxᴛʀᴇᴍᴇʟʏ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ ᴍᴇᴅɪᴀ ꜱᴜᴄʜ ᴀꜱ Horrorporn etc. !!!!!!!
 <p align="Center"> ╚══ஓ๑♡๑ஓ══╝
 
-𝘾𝙪𝙧𝙧𝙚𝙣𝙩 𝙄𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨
+𝘾𝙪𝙧𝙧𝙚𝙣𝙩 𝙄𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨:
 Marvel, Dead By Daylight, Resident Evil, Five Nights At Freddy's, The Quarry, Doctor Who, Red Dwarf & American Horror Story.
 
-𝙁𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝙎𝙝𝙞𝙥𝙨
-Warloki, Lunar Justice (Frank Castle and Moonknight), 
+𝙁𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝙎𝙝𝙞𝙥𝙨:
+Warloki, Lunar Justice (Frank Castle and Moonknight), Otto Octavius and Norman Osborn, IronStrange, MoonKnight/Starlord/Adam/Loki, Otto Octavius/Norman Osborn/Albert Wesker/William Afton/Dr Curtis Connors + More!! Pretty open to ships as long as it isnt freak shit!
 
-𝙁𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝘾𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨
-Moonknight, Adam Warlock, AntMan, Hank Pym, SpringTrap, The Mangle, William Afton. 
+𝙁𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝘾𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨:
+Moonknight, Adam Warlock, Ant-Man, Hank Pym, SpringTrap, The Mangle, William Afton. 
